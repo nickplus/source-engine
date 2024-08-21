@@ -10,3 +10,6 @@ Counter Strike
 Counter-Strike Source
 Counter-Strike Global Offensive
 Counter Strike 2
+
+
+Was a fun ride: https://store.steampowered.com/news/app/730/view/6500469346429600836
